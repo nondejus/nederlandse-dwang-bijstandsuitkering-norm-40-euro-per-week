@@ -1,1 +1,0 @@
-# nederlandse-dwang-bijstandsuitkering-norm-40-euro-per-week
